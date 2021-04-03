@@ -1,0 +1,1 @@
+there was a kindvery proud of himselfand till now killed 99 tigers and today he was going to kill his 100th tiger and he did it succesfully and after coming he went to the shop to buy a toy for his son and he chose a wooden tiger but expectionally this toy was very sharp from one end and when king lifted it the point hit his viens inside the hand and he died .
